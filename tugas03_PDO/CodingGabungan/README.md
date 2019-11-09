@@ -1,4 +1,3 @@
 # web
 
-Kurang
-- GABUNG DENGAN KEL 3 READ & ADD
+Gabungan Kelompok 3 & 4
